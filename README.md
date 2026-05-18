@@ -1,3 +1,4 @@
+![image alt](https://github.com/Marianoz1972/Tech_Art_mariano_zulueta_Porfolio/blob/b466b7c6acd616cbc2327045522d062c5c35319a/ChatGPT%20Image%2023%20abr%202026%2C%2007_18_49%20p.m..png)
 # Mariano Zulueta
 
 <div align="center">
